@@ -1,3 +1,0 @@
-zeynep coban
-kahve dükkan
-
