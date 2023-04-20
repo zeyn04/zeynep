@@ -1,3 +1,2 @@
-# zeynep
-kahve dükkan
+# kahve dükkanı
 
